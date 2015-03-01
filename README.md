@@ -1,1 +1,2 @@
 # monkeysoup
+Monkey soup is a delicacy renowned among the un-ung tribes of southern bolaria. A common misconception is that this soup contains monkey as one of its ingredients. Rather, the soup is brewed by monkeys for the human populace of the area as a sign of acceptance and friendship. It is reported to be a delicious thick broth with a fruit base and nutty overtones, but the exact ingredients of monkey soup remain a mystery as it is never brewn in the company of humans.
